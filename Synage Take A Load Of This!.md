@@ -70,7 +70,7 @@ Like it's coherent
 
 That doesn't have synergy  
 You might have a fifty and no energies  
-I just an effigy  
+I just had an effigy  
 
 What if you make all the grubs   
 Dissapear from hollow knight  
