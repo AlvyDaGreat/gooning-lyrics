@@ -37,7 +37,7 @@ Put it on your pants, call that funny
 I would like to put a belt on you  
 And make it good as well
 
-\[Verse 1\]  
+\[Verse 2\]  
 I would like to make you wear  
 that fit behind the camera  
 Noone can see it except for you  
